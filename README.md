@@ -1,1 +1,0 @@
-# venkatasrinidhi.github.io
